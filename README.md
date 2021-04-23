@@ -1,0 +1,2 @@
+# galaxxycoin
+GalaxxyCoin, the future.
